@@ -9,6 +9,6 @@ All tutorial in my youtube Famz botz chanel
 
 
 Gunakan sebaik mungkin
-kembangkan sebagus mungkin
+ dan kembangkan sebagus mungkin
 
 # Berbagilah ketika masih ada yang bisa kita bagikan #
